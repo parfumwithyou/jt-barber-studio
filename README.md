@@ -1,1 +1,0 @@
-# jt-barber-studio
